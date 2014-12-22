@@ -35,9 +35,61 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The anatomie of humors: vvritten by Simion GrahameGrahame, Simion, ca. 1570-1614.1609Approx. 255 KB 
+
+1. TO HIS EVERHONOVRED
+LORD
+AND MAISTER, MY LORD
+GRAHAME, Earle of Montrois, &c.
+Con il tempo.
+
+1. TO HIS EVER-HONOVRED
+LADY, MY LADY COVNteſſe
+of Montrois,
+&c.
+
+1. TO THE READER.
+
+1. TO HIS EVERHONOVRED
+LADY,
+MY LADY COVNTESSE
+of Erroll.
+
 #####Body#####
-The anatomie of humors: vvritten by Simion GrahameGrahame, Simion, ca. 1570-1614.1609Approx. 255 KB 
+
+1. THE ANATOMIE
+OF HVMORS.
+
+1. THE SPIRIT OF GRACE
+To the wicked ſinner.
+
+1. THE SORROVVFVLL SONG
+OF A CONVERTED SINNER.
+
+1. TO
+THE ESTATE
+OF VVORLDLIE
+ESTATES.
+
+1. OF A BEE.
+
+1. HIS
+PASSION ADO,
+When he was in Pilgrimage.
+
+1. FROM ITALY
+to SCOTLAND his Soyle.
+
+1. TO THE GHOST OF THE
+right Honorable JOHN GRAHAME
+Earle of MONTROIS, ſometime ViceRoy
+of North-Britaine.
+
+1. AGAINST TIME.
+SONNET.
+
+1. HIS
+DYING SONG.
+
 **Types of content**
 
   * There are 778 **verse** lines!
